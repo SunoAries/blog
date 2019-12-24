@@ -1,4 +1,4 @@
 # blog
 
+おれは、
 
-おれは、、、kimisikidesu
